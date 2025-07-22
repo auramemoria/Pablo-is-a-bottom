@@ -10,6 +10,7 @@ Minimum 15-20
 Town names:
 Sunny town
 Route 1
+PonyVillage
 Crescent Town -Cresselia worship town
 
 How many gym leaders?
@@ -159,5 +160,92 @@ Granddaughter wins
 
 Route 1 pokemons - Starly, Galarian Zigzagoon, Azurill
 
+(Player reaches Whistle Town, and has a pokemon battle with Professor's Granddaughter when they bump into a popular sweet store)
 
-Dakari IS EVIL
+"Well aren't you a slow one?! I don't understand why my grandpa even bothers with someone like you." -Grandaughter speaks with an attitude 
+
+"I can sorta see why he rarely takes off his time for you-" *Darkrai replys nonchalant not interested in getting annoyed by a 10 yr old
+
+"Well i'll show grandad im better that you, lets see how strong you are!"
+
+"Pokemon battle starts, Granddaughter has starter Pokemon and Starly on her team"
+
+(After Grandaughter loses)
+
+"It was only luck, next time i'll win. So don't get overconfident. 
+
+(Grandaughter dashes off, dropping a sweet on the ground, player picks it up)
+
+"Dumb child... forget it, this could be some good use"
+
+(Player makes it to the Viney Forest, pokemon Lvl 4 - 7 Budew, Caterpie, Weedle, Rookidee, Starly, Pichu. 
+Player meets Boss of Team Calamity playing the Guqin in a large tree trunk and singing a poem)
+
+" blah blah blah life, blah blah blah light, blah blah blah bell, night blah blah darkrai cries blah blah"
+
+*The Boss of Team Calamity notices Darkrai behind him*
+
+"Who might you be? Isn't disrespectful to peek on people?"
+
+*The boss of Team Calamity notices something*
+
+"I sense a strange aura in you, I am intrigued. My name is Sr Nouvel, It's a pleasure. What is your's traveler?"
+
+*Darkrai approaches the man and thinks to himself*
+
+'I can't tell him i'm darkrai, I don't really have a good reputation in Solara Region'
+
+*Game lets you choose what name to play in human form, also fun add on go the game, if you write Darkrai, Darkrai gets mad*
+
+"My name is ________, I am heading to Cinnabell City to challenge the gym leader. Why do you say to be intrigued by me? Aren't you a peculiar one to play in a dangerous zone of pokemon here in a forest?" -Darkrai
+
+"This forest has a relaxing atmosphere to it, it calms your soul and mind... and yet its being disturbed by someone..." *Sir Nouvel looks at Darkrai in a suspicious manner but rubs it off*
+
+"What do you mean by that? Are you insinuating-" -Darkrai gets cut off
+
+"Don't worry about it, Trainer. This chat was very productive. I'd love to battle you someday. I'll take my leave" -Sir Nouvel walks away
+
+"Hey! What's your problem?! Come back! Ugh... forget it... something tells me this won't be our last meeting" 
+
+note- It might be cool is Darkrai has the option to join Team Calamity to reach Cresselia and Giratina. 
+
+-Extra Note, Sir Nouvel has a team called Team Calamity, their goal is to capture Darkrai, Cresselia and Giratina to make the world fall in a deep slumber to save his wife from a deadly insomnia, Team Calamity searches for Griseous Orb, Lunar Feather, and Darkrai's move Dark Void brainwashing the team into believing its for the greater good for the world to create a peaceful mind and dreams
+
+If Darkrai join Team Calamity he is promised to become powerful being able to absorb everyones nightmares. 
+
+If Dakrai joins Cresselia and Giratina the three of them go against Team Calamity evil plan to return their powers and avoid the endless nightmare.
+
+(Player heads to Cinnabell City. Cinnabell city dedicates to create bells for goodnight sleep, there is a bell shop, and incense shop. Gym Leader specializes in Grass Type Pokemon)
+
+(The Gym Leader Irene has Level 11-14 grass type pokemon, she is relaxed and passes time meditating, has a habit of bumping into things from meditating while walking with eyes closed.)
+
+(Darkrai goes into Cinnabell City and notices a lady bumping into things constantly with a relaxed expression)
+
+'What's wrong with her? I just walked into this city.' *Darkrai looks a little annoyed*
+
+*Irene suddenly bumps into Darkrai*
+
+"Hey?!Lady!!' *Darkrai looks pissed off, what should he do?*
+
+-Push her off
+
+(Pushing her will cause people in town hate you in the entire game)
+
+-Bring her back to her senses
+(Irene comes back to her senses and seems greatful to Darkrai slightly raising your reputation)
+
+"o-oh? i'm sorry if I caused you any problems. I tend to meditate no matter where I go." *Irene smiles at Darkrai
+
+"I dont think i've seen you around here? If so you should try going to Bell Workshop and try making a Bell, its a popular tourist spot" -Irene recommends
+
+"I'm not here waste time with games, I'm looking for the Pokémon Gym" -Darkrai looks angry and impatient at her
+
+"The pokemon gym? ah- in that case you might want to head to north east. That's where the gym is-" *Irene gets cut off
+
+"North East? Alright I got no time to waste" -Darkrai leaves Irene behind
+
+"But you might miss the bell event-" *Irene watches Darkrai as he leaves*
+
+(Player has the choice to enter bell event or avoid bell event by going straight to the gym)
+
+(Bell event allows you create your own Bell that helps boost atk, sp atk, def, sp def, spd depending on your choices)
