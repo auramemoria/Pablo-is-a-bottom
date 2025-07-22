@@ -158,3 +158,6 @@ Granddaughter wins
 *Darkrai heads to Route 1
 
 Route 1 pokemons - Starly, Galarian Zigzagoon, Azurill
+
+
+Dakari IS EVIL
