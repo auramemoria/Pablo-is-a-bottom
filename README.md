@@ -8,10 +8,26 @@ How many Towns?
 Minimum 15-20 
 
 Town names:
-Sunny town
+
+Sunny Town
+
+Cinnabell City
+
+Ditto Town
+
 Route 1
-PonyVillage
+
+Ponyta Village
+
 Crescent Town -Cresselia worship town
+
+Team Calamity Island/Headquarters
+
+Forest in Route 1 - Viney Forest
+Cinnabell is connected to Route 1 and Route 2, and the ocean takes you to Team Calamity Headquarters, you can only access later in the game when you are gifted the TM-Swim
+
+Ghost town - Access to cliff and mother living by herself (Access to pablo's extra event that effects story positive and negative points)
+
 
 How many gym leaders?
 
@@ -249,3 +265,63 @@ If Dakrai joins Cresselia and Giratina the three of them go against Team Calamit
 (Player has the choice to enter bell event or avoid bell event by going straight to the gym)
 
 (Bell event allows you create your own Bell that helps boost atk, sp atk, def, sp def, spd depending on your choices)
+
+Head to gym leader, beat a few trainers to make it to Irene, after approaching it unlocks dialogue
+
+"That woman from before?" *Darkrai looks at the lady meditating*
+
+"You finally arrived" -Irene stands up from her meditation
+
+"My name is Irene, I am cinnabell's gym leader, I specialize in grass type pokemon and-" Irene gets cut off once again
+
+"I got it, no need to tell me your life story, I have eyes" -Darkrai 
+
+"Oh- I apologize I tend to ramble quite a lot, I won't take no more time, lets get to battle"
+
+(Irene pokemons are Petilil, Morelul, bulbasaur)
+
+Dialogue after losing (Negative Points)
+"I expected more from someone of your attitude"
+
+Dialogue after losing (Positive Points)
+"You have potential within you, come again"
+
+Dialogue after Winning (Negative Points)
+"That was intense"
+
+Dialogue for Winning (Positive points)
+"You have real strength"
+
+"I lost, I'm not surprised you showed true power, now I present you cinnabell gym badge"
+
+Dialogue losing and coming back 2nd
+"You're back, I'm sure you've trained to reach your full potential, lets battle"
+
+Dialogue losing 3rd time
+"I like youre dedication and never giving up, lets start"
+
+Dialogue after losing 4th time
+"Yknow when I was younger I had other dreams and passion, and some things didnt work out for me. Maybe this isnt for you-" -Irene gets cut off
+
+"Shut it and just fight me, I cant affort to lose"
+
+(Dialogue tries end at 4 tries and keep repeating at 4th time)
+
+"To reach Crescent City you'll have to go through Route 2, the Inferno Cave and then take route 3 to the Border town and after that theres route 4 that takes you to Crescent City" -Irene explains throughtly
+
+"Why is it so much for just reaching the 2nd gym? Shouldn't it be closer here?" Darkrai
+
+"There used to be a gym in Border town but it had become corrupt from slowpoke tail transactions, and the gym leader there became slightly bad... if you want you can meet him to get a gym badge" Irene says
+
+"I am not going to Inferno cave for nothing, im getting my gym badge from that guy" Darkrai
+
+"His name is Sherly, but he has a preference being called Boss... Call him that if you want to meet him" Irene
+
+"I am not calling him boss- ugh whatever, ill see what I can do" Dakrai
+
+"I wish you luck in your journey" Irene
+
+Player heads to route 2
+
+
+
