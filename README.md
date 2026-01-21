@@ -28,6 +28,8 @@ Cinnabell is connected to Route 1 and Route 2, and the ocean takes you to Team C
 
 Ghost town - Access to cliff and mother living by herself (Access to pablo's extra event that effects story positive and negative points)
 
+Depending on reputation, negative points increases store products to be higher, people are rude and give you useless items. If you receive positive points, the stores give you discounts, people talk yo you nicely and gift you useful and rare items.
+An amount of negative points makes you receive a really useful item if you accumulate a lot of negative points.
 
 How many gym leaders?
 
@@ -43,7 +45,7 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "I guess it leaves me no choice... ill get something stronger... its about time"
 
-*Darkrai takes out a Griseous Orb until somone approached behind him*
+*Darkrai takes out a Griseous Orb until someone approaches behind him*
 
 "I think you've had enough Darkrai, I can no long turn a blind eye as you harm more humans and pokemon" -Cresselia
 
@@ -55,13 +57,13 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "You're playing with fire, if I were you I wouldn't. Giratina is not one to mess with. You could cause something worst than death-" -Cresselia
 
-*The orb starts the shine, opening a portal*
+*The orb starts to shine, opening a portal*
 
 "Darkrai, No!!"
 
 *Cresselia quickly holds onto Darkrai obsorbing onto the portal*
 
-"Dammit! Cresselia! Not you!" -Darkrai
+"Dammit! Cresselia! Get off me!" -Darkrai
 
 *Both Cresselia and Darkrai warp into the portal, they appear into the distortion world where Giratina lives*
 
@@ -76,7 +78,7 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "Im not letting you get away from this! Its time to put an end to this! You will not hurt Giratina or anyone else" -Cresselia takes out the lunar feather, sparkling 
 
-"Don't think your stupid feather can stop me, ive had enough of you. I'l get rid of you and absorb you too!" -Darkrai uses dark void on cresselia making her almost fall asleep and hallucinate from nightmares but pushes on to stay aware, her energy being absorb"
+"Don't think your stupid feather can stop me, ive had enough of you. I'll get rid of you and absorb you too!" -Darkrai uses dark void on cresselia making her almost fall asleep and hallucinate from nightmares but pushes on to stay aware, her energy being absorb"
 
 "I wont... go... down!" -Cresselia uses psychic wrapping the lunar feather around his neck, making darkrai drop the griseous orb and opening the portal again absorbing
 
@@ -84,17 +86,17 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "If I go down... you go down with me!" 
 
-*Darkrai, Cresselia and Giratina get absorbed at the portal, the portal spaws outside in the sky dropping us in different locations in the Solara Region. Darkrai in on the ground at night. A professor studying pokemon's at night notice the commotion and finds Darkrai*
+*Darkrai, Cresselia and Giratina get absorbed at the portal, the portal spawns outside in the sky dropping us in different locations in the Solara Region. Darkrai in on the ground at night. A professor studying pokemon's at night notice the commotion and finds Darkrai*
 
-"Oh my- a Darkrai?!" -The professor notices Darkrai transform into human form unconscious
+"Oh my- Is that the mythical pokemon?! Darkrai?!" -The professor notices Darkrai transform into human form unconscious
 
-"What just happened?! A pokemon transforming into human?! He looks terribly injured, I should get him treated first" -The professor takes the darkrai to his lab and into his room. After some time Darkrai wakes up.
+"What in the world? What just happened?! A pokemon transforming into human?! He looks terribly injured, I should get him treated first" -The professor takes the darkrai to his lab and into his room. After some time Darkrai wakes up.
 
 "Ugh... where am I...?" -Darkrai says in pain, his head swirling 
 
-"You're awake, I found you unconscious and too you to my lab-"
+"You're awake, I found you unconscious and took you to my lab-"
 
-"What do you want, human?! Do not talk to me! Ill absorb you and leave" -Darkrai tries using dark void to make him fall asleep and absorb his energy, but it fails from the Lunar feather in my neck.
+" Who are you?! What do you want, human?! Do not talk to me! Ill absorb you and leave" -Darkrai tries using dark void to make him fall asleep and absorb his energy, but it fails from the Lunar feather in my neck.
 
 "W-what is this?" "Why cant I take it off?!"
 -Darkrai aggressively tries to take the necklace off but its stuck on his neck
@@ -105,9 +107,30 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "If you'd like you can stay here for a while, if you cant use your powers youll be unable to survive out there by yourself" -The professor reassures trying to be nice
 
-"Living with a human?! How degrading... ill stay for now I guess... and figure things out... I suppose" -Darkrai responds in a bad mood. 
+"Living with a human?! How annoying! ill take over your place and figure things out, but I do not want to see your face around me" -Darkrai responds in a bad mood. 
 
-"In that case i'll show you around and introduce you to everyone, come with me" -professor
+"I don't think thats how it works when someone offers you to stay over, besides you've been asleep for a month" -Professor
+
+"Huh?! You said a whole month?! You took care of me for a month? Why? I'm Darkrai, my name is ill known in towns!" -Darkrai
+
+"Well, I'm a pokemon professor, I dedicate my entire life learning about pokemons, but I believe every pokemon have a heart and reasons for their behavior. I'm sure you do as well, so stay as long as you need, you are a human now, I checked to see if you have any pokemon energy, and it seems you are a fully human now, I have never heared anything like that before"
+
+"Me? Fully a human?" -Darkrai rushes to look in the mirror
+"I'm a human?! how?! Oh no no no no, when I see cresselia i'll end her! This thing basically has the energy locked inside!" 
+
+"It seems that you aren't the only one affected, we would assume that it would release energy back to the people consumed but... people still suffer from nightmares. Cresselia stopped you from using your powers but couldn't release it. I would assume she is the only one who can do it" -Professor explains
+
+(Plot twist later in thr story. Cresselia says she can't release it because her energy is also locked inside)
+
+"Hah, that means I have to find Cresselia, she is quite terrible at hide and seek. Once I see her i'll make her remove this." -Darkrai stands up and drops
+
+"Careful! You aren't fully healed after the damage you took and you ability to restorate is slower now that youre human! Stay for a while longer if you plan making your journey out" -Professor goes next to him
+
+"Dammit... I feel so weak... I'll stay, but ill leave once im much better. Don't expect me to be thankful" -Darkrai climbs on the bed again
+
+"That would be the best..." -professor
+
+'Since he will be staying. I will introduce him to the villagers here, and hopefull he feels more at home. Huh... a Darkrai in my own home. Never in my 40 years alive would I ever thought Id end up in this strange situation' -Professor thinks
 
 -Song intro and Game logo as professor and darkrai walk going around the city
 
@@ -119,9 +142,9 @@ Darkrai heads from home to home, finding nothing more but emptiness. People are 
 
 "How does it feel being the new pokemon champion in Solara Region" -the interviewer asks
 
-"It's an honor to he Solara's new champion... I won't disappoint..." -Giratina answers, perhaps a little scary for people
+"It's an honor to be Solara's new champion... I won't disappoint..." -Giratina answers, perhaps a little scary for people
 
-"So it wasnt only me- while youre famous im here unable to sleep from not eating peoples dreams... why am I slacking I really need to get going" *Darkrai quickly rushes out seeing the professor who is at the lab
+"So it wasnt only me- while youre famous im here unable to sleep from not eating peoples dreams... why am I slacking?? I really need to get going" *Darkrai quickly rushes out seeing the professor who is at the lab
 
 "Hey nerd, I need to get going. Im going to challenge the pokemon champion!" -Darkrai says straighfoward
 
@@ -140,9 +163,9 @@ Rowlet, Chimchar, Froakie
 *After choosing Professor grandson comes to get a pokemon as promised*
 
 "Hey grandad! Where are the three pokemon starters as you promised?!"
- *The grandson looks at darkrai*
+ *The granddaughter looks at darkrai*
 
-"Whats that weird guy you picked up doing here? No way, you gave him one of the pokemons I was choosing?!" -Granddaughtee gets angry
+"Whats that weird guy you picked up doing here? No way, you gave him one of the pokemons I was choosing?!" -Granddaughter gets angry
 
 "Hah?! Weird guy?!" Darkrai gets mad
 
